@@ -1,1 +1,0 @@
-# segghazaryan.github.io
